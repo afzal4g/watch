@@ -1,11 +1,3 @@
-Tee-shirt is a type of casual top made from fabric-2024
-Nov 6, 2024
-—
-
-by
-
-afzalsalafi
-in Uncategorized
 Here’s a detailed breakdown about T-shirts:
 
 1. Introduction to Tee-Shirts
